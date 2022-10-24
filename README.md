@@ -3,6 +3,8 @@
 </p> 
   ᴅᴇᴠᴏʀᴇ-ᴍᴇ ᴏᴜ ᴅᴇᴄɪғʀᴏ-ᴛᴇ
 </p>
-  como diminui a fonte
+  COMO DIMINUI A FONTE?
 </p>
   👻 Vasco
+
+
